@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Leko
+- 👀 I’m interested in Discord Server management and working on coding apps, games, and discord bot.
+- 🌱 I’m currently learning javascript, python, c++, and school ofc.
+- 💞️ I’m looking to collaborate on Nothing atm.
+- 📫 The way to contacting me is thru my email! Email: redoxthegod@gmail.com
